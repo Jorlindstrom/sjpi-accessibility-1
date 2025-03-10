@@ -1,2 +1,2 @@
 # sjpi-accessibility-1
-May day, May day - help me save the site!
+Green light for website for best performance, accessibility, best practices and SEO
